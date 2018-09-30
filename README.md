@@ -1,5 +1,9 @@
 # 不知理想幾旬？或叁、或肆，只求無怨無悔
 
+![](https://github.com/victory1355/victory1355.github.io/blob/master/resume/victory.jpg)
+
+
+
 
 ## 第壹重
 
