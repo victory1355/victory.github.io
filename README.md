@@ -1,6 +1,6 @@
 # 不知理想幾旬？或叁、或肆，只求無怨無悔
 
-![](https://github.com/victory1355/victory1355.github.io/blob/master/resume/victory.jpg)
+https://github.com/victory1355/victory1355.github.io/blob/master/resume/victory.jpg
 
 
 
@@ -20,4 +20,4 @@
 ------------------------------
 ### 希望每个人都可以，爱你所爱，行你所行；听从你心，无问西东！
 
-# :apple MGSXJZ :apple
+# MGSXJZ :apple:
