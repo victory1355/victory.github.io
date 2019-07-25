@@ -1,6 +1,6 @@
 # 不知理想幾旬？或叁、或肆？不忘初心，砥砺前行。
 
-https://github.com/victory1355/victory1355.github.io/blob/master/resume/victory.jpg
+https://github.com/victory1355/victory1355.github.io/blob/master/resume/love.jpg
 
 
 ### 昨夜西風凋碧樹，獨上西樓，望盡天涯路
