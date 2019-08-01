@@ -1,6 +1,6 @@
-# And maybe i'm not ready
+#  And maybe i'm not ready
 ------------------------------
-# But l'll try for your love
+#    But l'll try for your love
 ------------------------------
 ### Il n'ya qu'un héroïsme au monde : c'est de voir le monde tel qu'il est et de l'aimer.
 
