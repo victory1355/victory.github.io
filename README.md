@@ -1,7 +1,2 @@
------------------------------
-##  And maybe i'm not ready
-------------------------------
-#  But l'll try for your love
-------------------------------
-### Il n'ya qu'un héroïsme au monde : c'est de voir le monde tel qu'il est et de l'aimer.
+# 你的可爱在我心里早已泛滥成灾，让我如何是好？
 
